@@ -1,0 +1,1 @@
+# 7-sinif-fen-bilimleri-yeni-nesil-defter-32
